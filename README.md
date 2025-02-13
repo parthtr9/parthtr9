@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm a first year CS major in UC San Diego
+I'm a Second year CS major at UC San Diego
 
 
 ## 🌐 Socials:
